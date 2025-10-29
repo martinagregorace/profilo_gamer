@@ -17,5 +17,5 @@
 # Immagine  
 ![foto](https://gaming-cdn.com/images/products/1744/orig/red-dead-redemption-2-xbox-one-gioco-microsoft-store-europe-cover.jpg?v=1730908051)  
 ---
-# Recensione personale  
-## Mi piace l'ambientazione di RDR II perchè è quella della fine 800
+## Recensione personale  
+ Mi piace l'ambientazione di RDR II perchè è quella della fine 800

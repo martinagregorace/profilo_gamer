@@ -15,7 +15,7 @@
 [Red Dead Remption II](https://www.rockstargames.com/it/reddeadredemption2)  
 ---  
 # Immagine  
-![foto](https://www.instant-gaming.com/it/1744-comprare-red-dead-redemption-2-xbox-one-gioco-microsoft-store-europe/?srsltid=AfmBOooTcgO7yeQ0ThWT2qpca9z9teXJqwATr_1kpr9ERXPTmOkWSQEU)  
+![foto](https://gaming-cdn.com/images/products/1744/orig/red-dead-redemption-2-xbox-one-gioco-microsoft-store-europe-cover.jpg?v=1730908051)  
 ---
 # Recensione personale  
 ## Mi piace l'ambientazione di RDR II perchè è quella della fine 800
